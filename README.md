@@ -1,0 +1,1 @@
+Correcting the misspellings of MF DOOM, namely those forgetting to use all caps. In memory of MF DOOM.
